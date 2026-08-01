@@ -10,7 +10,7 @@
 ⠀
 ⠀
 <p align="center">
-  kaden⠀ou⠀macro⠀⠀<img width="40" height="40" alt="s4" src="https://github.com/user-attachments/assets/9fd9e55a-5676-4e8f-ad82-fb5b7a6e9765" />⠀⠀any/mirror⠀prns
+  kaden⠀ou⠀ryker⠀⠀<img width="40" height="40" alt="s4" src="https://github.com/user-attachments/assets/9fd9e55a-5676-4e8f-ad82-fb5b7a6e9765" />⠀⠀any/mirror⠀prns
 </p>
 ⠀
 ⠀
